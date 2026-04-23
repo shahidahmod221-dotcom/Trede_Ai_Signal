@@ -1,0 +1,2 @@
+# Trede_Ai_Signal
+HECK CREATOR MD SHAHID KHAN 
